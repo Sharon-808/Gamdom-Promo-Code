@@ -1,4 +1,4 @@
-**Gamdom Promo Code 2025 – Use Code “TOP100LIST” and Claim 15% Rakeback for the First 7 Days Upon Signup**
+# **Gamdom Promo Code 2025 – Use Code “TOP100LIST” and Claim 15% Rakeback for the First 7 Days Upon Signup**
 
 Looking for an edge in online gaming? Use the Gamdom promo code **“**[**TOP100LIST**](http://gamdom.com/r/top100list)**”** and unlock an exclusive **15% rakeback** on all your bets for the first 7 days after signing up. This bonus ensures you’ll get a portion of your wagers back, boosting your chances of winning and extending your gameplay. Don’t miss this opportunity to start your Gamdom journey with significant rewards.
 
