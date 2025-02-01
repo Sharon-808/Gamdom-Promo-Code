@@ -20,14 +20,11 @@ A Gamdom promo code is a special alphanumeric code that players can use during r
 
 ## **Gamdom** **Promo Codes for 2025**
 
-| **Promo Code** | **Gamdom bonus offer** |
-
+| **Promo Code** | **Shuffle bonus offer** |
+| -------------- | ----------------------- |
 | **top100list** | Claim 15% instant rakeback |
-
 | **csgo100top1** | Earn up to 60% Rakeback |
-
 | **gamble100** | Get 15% rakeback for the first 7 days upon Signup |
-
 | **hellacsgo** | Get $1,000,000 Monthly in Prizes |
 
 ![image](https://cdn.resfu.com/media/img_data/archive/post38/01.jpg)
